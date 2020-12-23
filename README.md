@@ -1,2 +1,1 @@
-##Assalamu Alaykum. <br>
-Welcome to Muiduzzaman's Profile.
+## Assalamu Alaykum. Welcome to Muiduzzaman's Profile.
